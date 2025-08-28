@@ -1,2 +1,2 @@
 # website
-Dit is een website over mijn super lieve broer genaamd joli.
+Dit wordt een website dat gaat over Richero Weibolt.
