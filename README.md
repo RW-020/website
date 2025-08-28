@@ -1,2 +1,2 @@
 # website
-Dit is een website over mijn super leive broer genaamd joli.
+Dit is een website over mijn super lieve broer genaamd joli.
